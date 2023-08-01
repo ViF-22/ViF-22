@@ -3,7 +3,7 @@ Self-taught front-end developer who creates beauty with a few lines of code.
 </br>
 You can contact me:
 </br>
-✨tg: @Dontshyaway
+✨tg: @Dontshyawayy
 </br>
 ✉️: feofanovaviktoriya@gmail.com
 <!---
